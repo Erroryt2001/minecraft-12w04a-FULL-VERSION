@@ -15,3 +15,7 @@ well over 13 years of me and my team searching finally it was a simple .jar file
 
 
 tutorial is on a seperate area lol its on my pc
+
+
+
+this has racist bc mojang made affrikkans say the n word instead of what it actually is
